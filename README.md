@@ -1,0 +1,1 @@
+# muhammadqodir-khalimjonov-G14
