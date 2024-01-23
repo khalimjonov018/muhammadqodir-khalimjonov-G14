@@ -1,1 +1,1 @@
-# muhammadqodir-khalimjonov-G14
+# G14_khalimjonov__muhammadqodir
